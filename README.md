@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/mohitsahu1993/**
 
-- 📄 Resume [[https://drive.google.com/file/d/12N_VYgc4lss5bqGwHaQh25c9lITCMJ-q/view?usp=sharing](https://drive.google.com/file/d/1nCRCetVfq-1tYMPYSotpOCG4WhpYBJRb/view?usp=drive_link)]
+- 📄 Resume [[https://drive.google.com/file/d/12N_VYgc4lss5bqGwHaQh25c9lITCMJ-q/view?usp=sharing](https://drive.google.com/file/d/1jVpMd1lSKd6deDbpBSlNxS0VJn0JegrC/view?usp=drive_link)]
 
 - ⚡ Fun fact **I think I am funny**
 
